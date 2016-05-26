@@ -1,1 +1,1 @@
-Find a trial Project
+Find a Trial Project
